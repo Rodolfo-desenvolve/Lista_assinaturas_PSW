@@ -1,0 +1,1 @@
+# Lista_assinaturas_PSW
